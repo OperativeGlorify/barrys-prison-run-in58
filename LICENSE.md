@@ -1,4 +1,4 @@
-
+Experience hypershot like never before with hypershot stealth Script, the #1 Script. Includes auto-collect and auto-farm for unbeatable performance.
 
 
 
